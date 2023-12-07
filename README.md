@@ -1,5 +1,4 @@
-
-![IMG_2555](https://github.com/celilensar/celilensar/assets/113338225/7bc51e99-a5f0-470b-9a21-c570c319b199)
+<img src="https://github.com/celilensar/celilensar/assets/113338225/7bc51e99-a5f0-470b-9a21-c570c319b199"  width="250">
 
 
 
